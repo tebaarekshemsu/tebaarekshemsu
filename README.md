@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tebaarekshemsu
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning in AAST my bachelor degree in software engineering 
+- 🌱 I’m currently learning in AASTU my bachelor degree in software engineering 
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me in my email tebarek29@gmail.com 
 - 😄 Pronouns: he/ him
